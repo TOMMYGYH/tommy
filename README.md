@@ -1,0 +1,2 @@
+# tommy
+all  picture 
